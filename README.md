@@ -1,0 +1,2 @@
+# PilipinoStickers
+Sticker Pack Description
